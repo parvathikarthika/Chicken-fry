@@ -1,17 +1,17 @@
 Easy Chicken Fry Recipe
  
-Prep time-15 mins
-Cook time-20 mins
+Prep time-15 mins|
+Cook time-20 mins|
 Total time-35 mins
 
-Ingredients-250 grams cubed boneless chicken
-            1 - 1.5 tsp fresh ginger garlic paste
-            ½ tsp red chilli powder
-            ½ tsp black pepper powder
-            ¼ tsp turmeric powder
-            1 tsp coriander powder
-            1 - 2 tsp lime juice
-            Salt to taste
+Ingredients-250 grams cubed boneless chicken,
+            1 - 1.5 tsp fresh ginger garlic paste,
+            ½ tsp red chilli powder,
+            ½ tsp black pepper powder,
+            ¼ tsp turmeric powder,
+            1 tsp coriander powder,
+            1 - 2 tsp lime juice,
+            Salt to taste,
             Oil for deep frying
 
 Easy chicken fry recipe with cubed chicken breast pieces and the basic spices you have in your pantry. Goes great with rice and dal or any curry of your choice.
